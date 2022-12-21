@@ -1,35 +1,18 @@
 ```
-MY NAME IS                              JADEN KIM
-I AM A                                  UIUX DESIGNER
-PLEASE LISTEN TO MY                     MUSIC
-WHICH YOU CAN FIND VIA MY WEBSITE AT    WWW.JADEN--KIM.COM
-ALSO PLEASE                             HIRE ME
-MY DESIGN PORTFOLIO IS ALSO ON          MY WEBSITE
-THANKS                                  !!!
-
-
-
-              _-o#&&*''''?d:>b\_
-          _o/"`''  '',, dMF9MMMMMHo_
-       .o&#'        `"MbHMMMMMMMMMMMHo.
-     .o"" '         vodM*$&&HMMMMMMMMMM?.
-    ,'              $M&ood,~'`(&##MMMMMMH\
-   /               ,MMMMMMM#b?#bobMMMMHMMML
-  &              ?MMMMMMMMMMMMMMMMM7MMM$R*Hk
- ?$.            :MMMMMMMMMMMMMMMMMMM/HMMM|`*L
-|               |MMMMMMMMMMMMMMMMMMMMbMH'   T,
-$H#:            `*MMMMMMMMMMMMMMMMMMMMb#}'  `?
-]MMH#             ""*""""*#MMMMMMMMMMMMM'    -
-MMMMMb_                   |MMMMMMMMMMMP'     :
-HMMMMMMMHo                 `MMMMMMMMMT       .
-?MMMMMMMMP                  9MMMMMMMM}       -
--?MMMMMMM                  |MMMMMMMMM?,d-    '
- :|MMMMMM-                 `MMMMMMMT .M|.   :
-  .9MMM[                    &MMMMM*' `'    .
-   :9MMk                    `MMM#"        -
-     &M}                     `          .-
-      `&.                             .
-        `~,   .                     ./
-            . _                  .-
-              '`--._,dd###pp=""'
+                                                                               ,,,,,,
+MY NAME IS                               JADEN KIM                         o#'9MMHb':'-,o,
+I AM A                                   UIUX DESIGNER                 .oH":HH$' "' ' -*R&o,
+                                                                      dMMM*""'`'      .oM"HM?.
+PLEASE LISTEN TO MY                      MUSIC                       ,MMM'          "HLbd< ?&H\
+WHICH YOU CAN FIND VIA MY WEBSITE @      WWW.JADEN--KIM.COM         .:MH ."\          ` MM  MM&b
+                                                                   . "*H    -        &MMMMMMMMMH:
+ALSO PLEASE                              HIRE ME                   .    dboo        MMMMMMMMMMMM.
+MY DESIGN PORTFOLIO IS ALSO @            MY WEBSITE                .   dMMMMMMb      *MMMMMMMMMP.
+                                                                   .    MMMMMMMP        *MMMMMP .
+FEEL FREE TO CONTACT ME @                JADEN@JADEN--KIM.COM           `#MMMMM           MM6P ,
+OR VIA PHONE                             +1.562.708.4854            '    `MMMP"           HM*`,
+                                                                     '    :MM             .- ,
+THANKS                                   !!!                          '.   `#?..  .       ..'
+THIS IS THE                              EARTH                           -.   .         .-
+                                                                           ''-.oo,oo.-''
 ```
