@@ -15,4 +15,8 @@ OR VIA PHONE                             +1.562.708.4854            '    `MMMP" 
 THANKS                                   !!!                          '.   `#?..  .       ..'
 THIS IS THE                              EARTH                           -.   .         .-
                                                                            ''-.oo,oo.-''
+
+
+sources:
+earth (https://asciiart.website/index.php?art=nature/astronomy)
 ```
