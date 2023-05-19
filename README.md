@@ -16,7 +16,6 @@
    THIS IS THE                              EARTH                           -.   .         .-
                                                                               ''-.oo,oo.-''
 
-
    sources:
    earth (https://asciiart.website/index.php?art=nature/astronomy)
    
