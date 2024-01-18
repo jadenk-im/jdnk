@@ -4,12 +4,12 @@
    I AM A                                   UIUX DESIGNER                 .oH":HH$' "' ' -*R&o,
                                                                          dMMM*""'`'      .oM"HM?.
    PLEASE LISTEN TO MY                      MUSIC                       ,MMM'          "HLbd< ?&H\
-   WHICH YOU CAN FIND VIA MY WEBSITE @      WWW.JADEN.KIM              .:MH ."\          ` MM  MM&b
+   WHICH YOU CAN FIND VIA MY WEBSITE @      WWW.JADENK.IM              .:MH ."\          ` MM  MM&b
                                                                       . "*H    -        &MMMMMMMMMH:   
    ALSO PLEASE                              HIRE ME                   .    dboo        MMMMMMMMMMMM.   
    MY DESIGN PORTFOLIO IS ALSO @            MY WEBSITE                .   dMMMMMMb      *MMMMMMMMMP.   
                                                                       .    MMMMMMMP        *MMMMMP .   
-   FEEL FREE TO CONTACT ME @                HOLA@JADEN.KIM            '     `#MMMMM           MM6P,
+   FEEL FREE TO CONTACT ME @                OFFICE@JADENK.IM          '     `#MMMMM           MM6P,
    OR VIA PHONE                             +1.562.708.4854            '    `MMMP"           HM*`,
                                                                         '    :MM             .- ,
    THANKS                                   !!!                          '.   `#?..  .       ..'
