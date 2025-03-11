@@ -1,16 +1,16 @@
 ```
                                                                                   ,,,,,,
    MY NAME IS                               JADEN KIM                         o#'9MMHb':'-,o,
-   I AM A                                   UIUX DESIGNER                 .oH":HH$' "' ' -*R&o,
+   I AM A                                   GRAPHIC DESIGNER              .oH":HH$' "' ' -*R&o,
                                                                          dMMM*""'`'      .oM"HM?.
-   PLEASE LISTEN TO MY                      MUSIC                       ,MMM'          "HLbd< ?&H\
-   WHICH YOU CAN FIND VIA MY WEBSITE @      WWW.JADENK.IM              .:MH ."\          ` MM  MM&b
+   I AM A                                   GRAPHIC DESIGN MFA          ,MMM'          "HLbd< ?&H\
+   STUDENT AT                               MICA                       .:MH ."\          ` MM  MM&b
                                                                       . "*H    -        &MMMMMMMMMH:   
-   ALSO PLEASE                              HIRE ME                   .    dboo        MMMMMMMMMMMM.   
-   MY DESIGN PORTFOLIO IS ALSO @            MY WEBSITE                .   dMMMMMMb      *MMMMMMMMMP.   
+   CHECK OUT MY PORTFOLIO AT                WWW.JADENK.IM             .    dboo        MMMMMMMMMMMM.   
+   AND FEEL FREE TO                         HIRE ME                   .   dMMMMMMb      *MMMMMMMMMP.   
                                                                       .    MMMMMMMP        *MMMMMP .   
-   FEEL FREE TO CONTACT ME @                OFFICE@JADENK.IM          '     `#MMMMM           MM6P,
-   OR VIA PHONE                             +1.562.708.4854            '    `MMMP"           HM*`,
+   YOU CAN EMAIL ME AT                      JADENK198@GMAIL.COM       '     `#MMMMM           MM6P,
+   OR PHONE ME AT                           +1.562.708.4854            '    `MMMP"           HM*`,
                                                                         '    :MM             .- ,
    THANKS                                   !!!                          '.   `#?..  .       ..'
    THIS IS THE                              EARTH                           -.   .         .-
